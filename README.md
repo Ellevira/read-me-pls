@@ -3,13 +3,13 @@
 ![image](https://github.com/user-attachments/assets/da69f471-db83-4781-8605-1c2e9f02a8eb)
 
 
-⊹₊ ⋆ welcome to my account ₊⊹![image](https://github.com/user-attachments/assets/cbb456c5-5a7e-4e42-a6ff-392c9800769f)
+⊹₊ ⋆ haieiie pls read ₊⊹![image](https://github.com/user-attachments/assets/cbb456c5-5a7e-4e42-a6ff-392c9800769f)
 
 
 ![image](https://github.com/user-attachments/assets/ccd0552e-ee83-41c9-8324-4b92f5cfc3ad)
 
 
-૮ • ﻌ - ა pls interact with me!feel free to c + h with me:3 and sometimes if im being flirty its satire pls dont take it so seriously =3 ![image](https://github.com/user-attachments/assets/25c71d88-ce36-400a-98e5-3de74cbfb235)
+૮ • ﻌ - ა pls interact with me!feel free to c + h with me:3 and sometimes if im being flirty its satire pls dont take it so seriously =3! copy/inspo is okay if you ask permission from me first -_- ![image](https://github.com/user-attachments/assets/25c71d88-ce36-400a-98e5-3de74cbfb235)
 
 ![image](https://github.com/user-attachments/assets/9d6d843e-f12c-445a-9ba2-c4eadff3b300)
 
